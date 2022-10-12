@@ -1,10 +1,11 @@
 
 
-### A Proposal for an Abiding Universe - The Map...
-###
-![Map_palin_01](https://user-images.githubusercontent.com/79364816/193010038-a5c684f6-eb7e-495b-979a-f85b28f35ddb.svg)
-###
-![tcp_table_03](https://user-images.githubusercontent.com/79364816/193072157-3beada2b-1bc2-4bdd-9786-418646252edb.svg)
+![cross_01-snipet_02](https://user-images.githubusercontent.com/79364816/195394816-5961ff67-2dbe-49f6-bfa7-d58a537a6fcb.svg)
 
+This is a map of a universe that I cannot fully explain
 
-### [Orthogonal view, table hyperlinks and commentary to follow swiftly...]
+Because it is map of a universe that I do not fully understand
+
+It is based on insight - an experience - and brought to this synthisis using mathematics extant and invented
+
+And is my hope that a further experience - in the form of an experiment - will valitade this map as being a true thing
